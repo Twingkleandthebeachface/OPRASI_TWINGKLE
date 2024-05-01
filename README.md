@@ -6,7 +6,8 @@
 
 # DATA PRIBADI ZAAXPLOIT
 ### data yang saya kumpulkan dari berbagai cara yang di lakukan dengan sepengetahuan saya sendiri di antaranya sebagai berikut:
-'''
+
+  ```
    • nama asli
    • alamat
    • tanggal lahir
@@ -17,5 +18,5 @@
    • nomer hp
    • jejek sosial media
    • dll dan masih banyak
-'''
+  ```
 ### File tersebuh di simpan di dalam repository saya dan ada yang saya jual di darkweb sehingga file berformat csv dan saya compresed menjadi zip dan ada password nya.
