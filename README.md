@@ -1,5 +1,5 @@
 ### SI PALING HENGKER
-![template_s](https://github.com/LuciverXploit/SaitamaV2/blob/main/img/20240205_060344.jpg)
+![template_s](https://github.com/Twingkleandthebeachface/OPRASI_TWINGKLE/blob/main/Picsart_24-04-30_15-47-11-045.jpg)
 
 
 # OPERASI TWINGKLE
