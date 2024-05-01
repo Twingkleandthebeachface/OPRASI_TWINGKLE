@@ -1,3 +1,7 @@
+### SI PALING HENGKER
+![template_s](https://github.com/LuciverXploit/SaitamaV2/blob/main/img/20240205_060344.jpg)
+
+
 # OPERASI TWINGKLE
 ### operasi Twingkle Adalah Operasi yang dilakukan secara acak memburu seseorang yang merasa dirinya hacker propesional dan cuman melakukan hacking menggunakan aplikasi terminal android /termux dan masih menggunakan script atau disebut dengan scripkiddie
 
