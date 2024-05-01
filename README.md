@@ -28,3 +28,24 @@ https://dragdropgo.com/wp-content/themes/travel/zaaxploitstupid.html
 https://growlightinstg.wpenginepowered.com/wp-content/themes/travel/zaaxploitstupid.html
 https://smiledentalkorea.com/wp-content/themes/travel/zaaxploitstupid.html
 https://aaacwildlifstg.wpengine.com/wp-content/themes/travel/zaaxploitstupid.html
+
+# TEMPAT TRANSAKSI JUAL BELI DARKWEB
+
+DEF CON® Hacking Conference
+http://g7ejphhubv5idbbu3hb3wawrs5adw7tkx7yjabnf65xtzztgg4hcsqqd.onion/
+RelateList - New era of Intelligence
+http://relateoak2hkvdty6ldp7x67hys7pzaeax3hwhidbqkjzva3223jpxqd.onion/
+CL0P^_- LEAKS
+http://santat7kpllt6iyvqbr7q4amdv6dzrh6paatvyrzl7ry3zm72zigf4ad.onion/
+LockBit 3.0
+http://lockbitapt6vx57t3eeqjofwgcglmutr3a35nygvokja5uuccip4ykyd.onion/
+Ransomexx2
+http://rnsm777cdsjrsdlbs4v5qoeppu3px6sb2igmh53jzrx7ipcrbjz5b2ad.onion/
+Lorenz
+http://lorenzmlwpzgxq736jzseuterytjueszsvznuibanxomlpkyxk6ksoyd.onion/
+Everest Ransomware Group
+http://ransomocmou6mnbquqz44ewosbkjk3o5qjsl3orawojexfook2j7esad.onion/
+Dark Army Hacking Group
+http://darkarmy5dhdw5jbml2mitgpaorzdiubxxiq5tdzsqidz55kygsrz7id.onion/
+Deepest - Darkest Secrets
+http://txxt.anonblogd4pcarck2ff6qlseyawjljaatp6wjq6rqpet2wfuoom42kyd.onion/
