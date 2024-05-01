@@ -20,3 +20,11 @@
    • dll dan masih banyak
   ```
 ### File tersebuh di simpan di dalam repository saya dan ada yang saya jual di darkweb sehingga file berformat csv dan saya compresed menjadi zip dan ada password nya.
+
+# LINK DEFACE
+### - TwingkleAndTheBeachFace: WEB
+
+https://dragdropgo.com/wp-content/themes/travel/zaaxploitstupid.html
+https://growlightinstg.wpenginepowered.com/wp-content/themes/travel/zaaxploitstupid.html
+https://smiledentalkorea.com/wp-content/themes/travel/zaaxploitstupid.html
+https://aaacwildlifstg.wpengine.com/wp-content/themes/travel/zaaxploitstupid.html
