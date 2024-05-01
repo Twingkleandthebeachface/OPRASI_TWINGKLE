@@ -49,3 +49,5 @@ Dark Army Hacking Group
 http://darkarmy5dhdw5jbml2mitgpaorzdiubxxiq5tdzsqidz55kygsrz7id.onion/
 Deepest - Darkest Secrets
 http://txxt.anonblogd4pcarck2ff6qlseyawjljaatp6wjq6rqpet2wfuoom42kyd.onion/
+
+### Pembayaran melalui crypto carancy atau email saya twingkleandthebeachface@onion.com
